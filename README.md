@@ -1,4 +1,6 @@
-
+<p align="center">
+  cloud, lend me your strength
+</p>
 <p align="center">
   <img src="https://64.media.tumblr.com/3131c31b779540a016e03256bc618b38/42d997020b109ec7-97/s540x810/3e25311281920fda7a4058c613fa966ccb3376b8.pnj" />
 </p>
