@@ -1,5 +1,5 @@
 <p align="center">
-  cloud, lend me your strength
+  クソみてえな人生…
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/ad159fdd7ba2735a91ce1204c63bf848/c24e891d04d98303-06/s540x810/8c23121e86f7c8a9a3ab148d9392af01f2ea362c.pnj" />
@@ -23,5 +23,5 @@
 </p>
 
 <p align="center">
-let us defy destiny together.
+クソみてえな自分自身…
 </p>
