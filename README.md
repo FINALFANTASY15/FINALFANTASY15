@@ -15,7 +15,7 @@
 </p>
 
 <p align="center">
-<a href="https://sephirothd.straw.page">strawpage</a> <a href="https://rickygrimes.straw.page">strawpage 2</a>
+<a href="https://dojimaclan.straw.page/">strawpage</a> <a href="https://rickygrimes.straw.page">strawpage 2</a>
 </p>
 
 <p align="center">
