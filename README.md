@@ -2,7 +2,7 @@
   クソみてえな人生…
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/ad159fdd7ba2735a91ce1204c63bf848/c24e891d04d98303-06/s540x810/8c23121e86f7c8a9a3ab148d9392af01f2ea362c.pnj" />
+  <img src="https://64.media.tumblr.com/949e7cf8c4ea7e6d9a9663d9fcb4d2da/4e14b34716c29401-1c/s500x750/f6902a8c2242d08643f2cd211fe432a576b037b6.gifv" />
 </p>
 
 <p align="center">
@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/18db431ed8d1e5120e9821287d847054/c24e891d04d98303-10/s540x810/fa1dd4899c1a7d47a3058f0dd257476dc3e41877.pnj" />
+  <img src="https://64.media.tumblr.com/949e7cf8c4ea7e6d9a9663d9fcb4d2da/4e14b34716c29401-1c/s500x750/f6902a8c2242d08643f2cd211fe432a576b037b6.gifv" />
 </p>
 
 <p align="center">
